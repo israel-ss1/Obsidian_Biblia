@@ -1,0 +1,5 @@
+#Estrutura
+#### Quantidade
+#### Sequencia
+#### Cronologia
+
