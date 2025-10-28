@@ -1,18 +1,11 @@
-#Organização
-### Porque estudar a Bíblia
-## A Bíblia Sagrada Cristã: O Livro Mais Influente de Todos os Tempos
 
-A Bíblia Sagrada é vista de várias forma diferentes no diversos lugares do mundo ao longo do tempo. 
+Chamamos de Bíblia o compêndio de livros extraídos de documentos antigos, que revelam grande parte da história dos povos. O texto revela de forma central a história do povo semita ou hebreu, mas relaciona com diversos outros povos, entre os principais estão o egípcio, persa, grego, romano. Este compêndio ou coleção de livros foi escrito por aproximadamente 40 autores ao longo de 1600 anos.
 
-A Bíblia Sagrada Cristã não é apenas uma coleção de textos religiosos; é um fenômeno cultural, histórico e espiritual 
-que moldou civilizações, inspirou leis, arte, música, literatura, e tocou a vida de bilhões de pessoas ao longo dos 
-milênios. Sua narrativa abrange a criação do mundo, a história da humanidade, profecias, poesia, códigos morais e o 
-cerne da fé cristã, apresentando-se como a Palavra de Deus e a mais poderosa bússola moral e existencial da história. 
+A palavra Bíblia não está registrada no livro em si, a origem da palavra vem grego e significa rolos ou livros. Ela é composta da Torá e dos livros do Novo Testamento que trás a história de Jesus o Cristo e da instauração da Igreja no mundo.
 
-A influência da Bíblia transcende as fronteiras da religião. Suas histórias, estão profundamente enraizados no inconsciente 
-coletivo ocidental e global. Do direito à justiça social, da ética pessoal aos grandes movimentos de reforma, é inegável 
-que os princípios e valores bíblicos deixaram uma marca indelével na trajetória humana, sendo a fundação de grande parte 
-do pensamento e das instituições ocidentais.
+A Bíblia no Brasil é um livro majoritariamente religioso pois a fé cristã o declara como manual de fé e prática e a palavra de Deus para o homem. É utilizada frequentemente na liturgia dos cultos e é encontrada nas igrejas, hospitais, presídios, tribunais, escolas e em vários outros locais públicos. É considerada a palavra de Deus pois foi inspirada por Ele, revelando-o e mostrando seu plano de criação e salvação. Além disso é um livro clássico, de história e sabedoria transformou a cultura ocidental, influenciando a ética, a justiça, a arte, a política e claro a religião.
+
+# A popularização da Bíblia
 
 Em termos de difusão, a Bíblia mantém uma supremacia inigualável. Anualmente, dezenas de milhões de Bíblias completas são distribuídas em todo o mundo. Relatórios da Sociedades Bíblicas Unidas (SBU) indicam que a distribuição mundial de Bíblias completas ultrapassou os **32,6 milhões de exemplares** em 2021. Embora os números variem anualmente e de acordo com as organizações de contagem, o volume total de distribuição de "Escrituras" (incluindo Bíblias completas, Novos Testamentos, e porções menores) atinge centenas de milhões, consolidando-a como o livro mais vendido, lido e traduzido da história.
 
@@ -21,12 +14,3 @@ O sucesso e a massificação da Bíblia devem muito a um momento crucial da hist
 
 A relevância perene da Bíblia ecoa nas palavras de célebres pensadores e líderes. O estadista americano **Abraham Lincoln** afirmou: **"Estou ultimamente ocupado em ler a Bíblia. Tirai o que puderdes deste livro pelo raciocínio e o resto pela fé, e, vivereis e morrereis um homem melhor."** O escritor britânico **Charles Dickens** disse que **"O Novo Testamento é o melhor livro que jamais foi ou será escrito no mundo."** Por sua vez, o imperador francês **Napoleão Bonaparte** reconheceu: **"A Bíblia não é um mero livro, mas uma criatura viva, com um poder que 
 conquista aqueles que se opõem a ela."** Essas citações, vindas de esferas diversas, atestam a autoridade moral e o poder transformador que a Bíblia exerce sobre a mente e o coração humanos, provando, em última análise, que ela é um patrimônio global que continua a inspirar e desafiar a humanidade.
-### Conteúdo
-
-### [[Leitura literária]]
-
-### [[Leitura Devocional]]
-
-
-### Estudo dirigido
-

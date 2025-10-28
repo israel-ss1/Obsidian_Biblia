@@ -1,0 +1,8 @@
+#Organização
+**A leitura devocional** é a leitura de uma porção diária em um momento de comunhão com Deus. Ela possui um caráter mais religioso, ligada àqueles que creem. A leitura devocional é, geralmente, guiada por livros específicos que a conduzem à exposição de temas para a evolução espiritual e o autoconhecimento. Muito comum encontrá-lo com o título "Pão diário" ou "Devocional".
+
+Muitas pessoas utilizam o plano de leitura anual da Bíblia como devocional, progredindo na leitura completa e realizando seu momento de intimidade com Deus. A questão é que esse momento, geralmente, não tem uma liturgia ou obrigatoriedade. Leituras recorrentes costumam ter metas, como três capítulos por dia, por exemplo.
+
+A leitura devocional, no entanto, deve ser exatamente o contrário: deve ser uma leitura pausada, dando atenção ao que o texto fala ao seu coração. Em algumas situações, pode ser declamada, como se fosse um poema, para que a métrica ajude na percepção da Palavra. Se, em algum momento da leitura, você aprende algo e começa a pensar nisso, a leitura pode ser interrompida para um momento de reflexão. Às vezes, essa reflexão progride para um sentimento de contrição e arrependimento, que requer, consequentemente, oração e pedidos de perdão. Em outros momentos, a leitura enche seu coração de ânimo e alegria, o que progride para uma atitude de agradecimento e adoração. Em todos esses casos, a leitura devocional, que é contemplativa e meditativa, será interrompida, porém terá cumprido o seu papel de ensino e edificação.
+
+Isso é observado no texto do livro de Neemias 8. 1-9, onde Esdras, o escriba, faz a leitura coletiva da palavra de Deus e isto trouxe renovo para todo o povo.
